@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BillyWildHigh
 - 👀 I’m interested in hard sex
-- 🌱 I’m currently learning how to rake 2 fist in my hole
+-  I’m currently learning how to rake 2 fist in my hole
 - 💞️ I’m looking to collaborate on slam
 - 📫 How to reach me hehe
 
